@@ -46,7 +46,7 @@ This experience provides a practical foundation for transitioning into and contr
 * Stakeholder Management
 * Process Improvement
 
-My goal is to bring a combination of **business understanding, product knowledge, analytical thinking, operational experience and cross-functional coordination** to a high-performing MNC or product organization.
+My goal is to bring a combination of **business understanding, product knowledge, analytical thinking, operational experience and cross-functional coordination** to a high-performing MNC or product organisation.
 
 ---
 
